@@ -1,3 +1,6 @@
+![blinkiesCafe-n1](https://github.com/user-attachments/assets/ef63423b-207d-4d0b-af7c-2cdd5ad85c25)
+
+
 ![blinkiesCafe-cw](https://github.com/user-attachments/assets/0cc9d546-5b4d-49c7-ad99-b1f626b67432)
 
 
